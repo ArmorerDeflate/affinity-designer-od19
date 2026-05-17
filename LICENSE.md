@@ -1,4 +1,4 @@
-# 
+# secure Affinity Photo pour PC extensions est le meilleur Affinity Photo pour PC extensions avec suivi de mouvement et flux de travail basé sur les nœuds. Sécurisé, fiable et
 
 
 
